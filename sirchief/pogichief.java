@@ -1,0 +1,1 @@
+ako si sir chief pogi ako [Paul Cristobal /The thanker]
